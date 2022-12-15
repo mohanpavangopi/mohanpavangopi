@@ -2,4 +2,5 @@
 - 👀 I’m interested in Building things
 - 🌱 I’m currently learning Pogramming
 - 📫 Reach me :-   GMAIL-mohanpavanch@gmail.com
-                 LINKEDIN-Mohan pavan gopi Chennamsetty
+                 LINKEDIN- https://www.linkedin.com/in/mohanpavangopichennamsetty
+                 TWITTER - @mohanpavangopi
